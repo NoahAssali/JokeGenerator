@@ -1,5 +1,1 @@
-# Random-Joke-Generator
-# Random-Joke-Generator
-# Random-Joke-Generator
-# Random-Joke-Generator
-# Random-Joke-Generator
+#idk i was proud of it i guess
